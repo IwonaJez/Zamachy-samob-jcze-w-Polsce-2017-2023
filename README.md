@@ -1,0 +1,1 @@
+# Zamachy-samob-jcze-w-Polsce-2017-2023
